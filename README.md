@@ -1,1 +1,1 @@
-[hmsukardi.github.io](https://www.hmsukardi.github.io)
+[hmsukardi.github.io](https://hmsukardi.github.io/)
